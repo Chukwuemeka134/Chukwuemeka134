@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Chukwuemeka134
-- 👀 I’m interested in ... 
+- 👀 I’m interested in ... developing games
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ... programming challenges
 - 📫 How to reach me ... (whatsapp +2349134061810)
